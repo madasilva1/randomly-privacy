@@ -38,4 +38,6 @@ This Privacy Policy may be updated if the game's features or data practices chan
 
 ## Contact
 
-For privacy-related questions, please use the developer's support contact information provided on the App Store listing.
+For questions about this Privacy Policy or support for Randomly Championship 2.0, please contact us at:
+
+randomlychampionship.support@gmail.com
